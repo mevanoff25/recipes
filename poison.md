@@ -6,7 +6,7 @@
 * garlic
 * cilantro
 ## Instructions
-mash it all together >
-throw it away >
-it will make your tummy hurt
+mash it all together  
+throw it away  
+it will make your tummy hurt  
 just make salsa or queso instead
