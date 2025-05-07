@@ -6,4 +6,5 @@
 * salsa fresca
 * lime wedge
 ## Instructions
-* throw it all away gross
+crush some avocado and mash everything together
+throw it all away gross
